@@ -1,5 +1,7 @@
 <p align="center">
-  <img width="400" height="400" src= ![bonezzz](https://github.com/user-attachments/assets/9fdd1733-86a6-4b97-a930-49e587733887)
+  <img width="400" height="400" src= ![THIZIZZOCUTEEEEEEOHMYGIODDD](https://github.com/user-attachments/assets/63e80d91-afcc-43ea-a2f6-7cab726535f8)
+
+
 
 
 </p>
